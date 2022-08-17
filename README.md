@@ -22,7 +22,8 @@
 ⚡ The goal of the next mission is to start working, to put my knowledge and skills into practice and above all to continue learning in every aspect.
 
 📞 If you need my services or want to know more about me, contact me and let's schedule a meeting.
-📱MOBILE: +54 9 261 2521565
-📧MAIL: ballesteros.jp.rj45@gmail.com
+📱 MOBILE: +54 9 261 2521565
+📧 MAIL: ballesteros.jp.rj45@gmail.com
+💼 LinkedIn: https://www.linkedin.com/in/ballesteros-jp/
 
 Thank you for coming here, have a great day!!!
